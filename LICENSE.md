@@ -1,4 +1,4 @@
-# 
+# VIP 1inch trading bot modelos for Mac OS | Elite 1inch trading bot modelos for PC Windows. Featuring API de exchange descentralizada and análise de momento — optimized for maximum performance.
 
 
 
